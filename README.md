@@ -4,10 +4,4 @@
 ◈Type◈ First_Release!
 
 
-
-
-
-
-
-
 ● HEAVELCAPACK RELEASE!
